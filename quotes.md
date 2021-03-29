@@ -1,14 +1,8 @@
 Alex's Favorite Quotes
 
-"If you're going through Hell, keep going. If you're not, reach back and grab someone who is."
+"If you're going through Hell, keep going. If you're not, reach back, grab someone who is, and pull!" (Anne Lamott on Winston Churchill)
 
-I don't know where I heard this, but I am pretty sure Anne Lamott was the first person I actually heard say it. She was quoting someone else, but it definitely wasn't Winston Churchill.
-
-“You want weapons? We’re in a library! Books! Best weapons in the world! This room’s the greatest arsenal we could have. Arm yourself!”
-The Doctor, David Tennant
-
-“Some people live more in 20 years than others do in 80, It's not the time that matters, It's the person.”
-The Doctor, David Tennant
+“You want weapons? We’re in a library! Books! Best weapons in the world! This room’s the greatest arsenal we could have. Arm yourself!” (The Doctor, David Tennant)
 
 “It’s vital to remember who you really are. It’s very important. It isn’t a good idea to rely on other people or things to do it for you, you see. They always get it wrong.” (Sourcery, Sir Terry Pratchett)
 
